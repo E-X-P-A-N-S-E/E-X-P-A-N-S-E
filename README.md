@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @E-X-P-A-N-S-E
+- 👀 I’m interested in ... learning how to code websites, video games and more!
+- 🌱 I’m currently learning ... very little as I have taken in so much info from so many different sources
+- 💞️ I’m looking to collaborate on ... anything regarding WEB3, video game coding and website development!
+- 📫 How to reach me ... discord Infamy#1408
+- I am in deserate need of some help on where to start with the world of coding! Thank you for your time and I look forward to working with you in the furure!
